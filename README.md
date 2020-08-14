@@ -2,7 +2,7 @@
 
 ### Hi 👋
 
-> I’m moon cheung, a freelance developer, hearing impaired
+> I’m mooncheung, a freelance developer, hearing impaired
 
 🔗 https://ikmoons.com
 
